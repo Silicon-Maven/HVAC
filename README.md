@@ -40,7 +40,7 @@ We specialize in providing:
 We are here to assist you with your cooling requirements! Reach out to us via:
 
 - Website: [maces.in](https://maces.in/)
-- Phone: +91-XXXXXXXXXX
+- Phone: +91-93502-47102
 - Email: info@maces.in
 
 ---
